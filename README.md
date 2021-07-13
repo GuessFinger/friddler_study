@@ -1,0 +1,1 @@
+# friddler_study
